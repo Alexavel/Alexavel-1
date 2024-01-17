@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on firm "InformTeh"
 - 📫 How to reach me : telegram @rulliges
 - 😄 Pronouns: he/his
-- ⚡ Fun fact: I'm a student
+- ⚡ Fun fact: I'm new to this field.
